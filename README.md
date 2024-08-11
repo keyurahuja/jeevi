@@ -33,6 +33,24 @@ Want to make a difference while enhancing your customer experience? Partner with
 
 By partnering with us, you're not just providing a unique dining experience; you're contributing to a global cause. Let’s create a positive impact together!
 
+**Contact Us**
+
+For general inquiries or feedback, please contact us at **contact@jeevi.co**.
+
+For partnering with us as a hotel,restaurant or cafe, please reach out to **partners@jeevi.co**.
+
+If you have detailed feedback or suggestions for improvement, please share them at **feedback@jeevi.co**.
+
+For sponsorship inquiries, please contact **sponsorships@jeevi.co**.
+
+**Founder and CEO**
+
+For direct communication with the founder and CEO, please reach out to **keyur@jeevi.co**.
+
+**Note:** Please use the appropriate email address for your specific query to ensure a timely response.
+
+Thank you for your support!
+
 ## 🚀 About Me
 I'm Keyur Ahuja, an author and entrepreneur. I have written 8 books and launched 16 startups and 5 nonprofits till now. You can learn more by visiting my profile.
 
