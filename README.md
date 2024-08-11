@@ -11,8 +11,11 @@ We believe in the power of peer-to-peer sharing. Your actions can create a rippl
 Spread the Word, One Share at a Time
 
 Discover Engaging Content: Explore our repository for a variety of captivating messages. Each message contains a unique blend of information and inspiration.
+
 Copy and Share: Simply copy the desired message.
+
 Engage Your Network: Paste the message into your preferred messaging app and share it with friends, family, or colleagues.
+
 Inspire Action: Encourage your contacts to learn more about the cause highlighted in the message.
 
 Remember: Share these messages during your downtime while waiting for your food. Let's make every idle moment count!
