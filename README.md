@@ -50,7 +50,7 @@ Partnering with Jeevi is not just about doing good; it’s about achieving tangi
 * **Increase Average Spend:** Engaged customers tend to stay longer and spend more.
 * **Improve Customer Loyalty:** Foster a positive association between your establishment and social responsibility.
 * **Generate Positive Publicity:** Gain media attention for your support of humanitarian causes.
-* **Access Analytics:** Gain insights into customer behavior and preferences through our platform’s analytics.
+* **Enhance Customer Engagement:** Create a more dynamic and interactive dining experience for your patrons by incorporating our platform. 
 * **Strengthen Community Ties:** Position your restaurant as a community hub that cares. 
 
 ## Please Remember
