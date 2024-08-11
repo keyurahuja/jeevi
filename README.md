@@ -33,6 +33,26 @@ Want to make a difference while enhancing your customer experience? Partner with
 
 By partnering with us, you're not just providing a unique dining experience; you're contributing to a global cause. Let’s create a positive impact together!
 
+## Why Partner with Jeevi?
+
+Partnering with Jeevi can significantly enhance your establishment’s appeal and impact. By incorporating our platform, you’ll:
+
+* **Elevate Your Brand:** Position your restaurant as a socially conscious and engaging venue.
+* **Enhance Customer Experience:** Provide a unique and interactive dining experience that keeps guests entertained and informed.
+* **Drive Foot Traffic:** Attract customers seeking a purpose-driven dining experience.
+* **Boost Social Media Engagement:** Encourage customers to share their experience and your establishment on social media.
+* **Support a Worthy Cause:** Contribute to global humanitarian efforts through our platform.
+
+**Realize Tangible Benefits:**
+
+Partnering with Jeevi is not just about doing good; it’s about achieving tangible business benefits. By joining our network, you’ll:
+
+* **Increase Average Spend:** Engaged customers tend to stay longer and spend more.
+* **Improve Customer Loyalty:** Foster a positive association between your establishment and social responsibility.
+* **Generate Positive Publicity:** Gain media attention for your support of humanitarian causes.
+* **Access Analytics:** Gain insights into customer behavior and preferences through our platform’s analytics.
+* **Strengthen Community Ties:** Position your restaurant as a community hub that cares. 
+
 ## Please Remember
 
 **We believe in the power of mindful sharing.** Enjoy your meal and the company of your loved ones without distractions. Jeevi is designed to fit seamlessly into your dining experience. Use those quiet moments between courses to explore and share our engaging content. 
