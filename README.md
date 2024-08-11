@@ -20,6 +20,21 @@ Spread the Word, One Share at a Time
 
 Remember: Share these messages during your downtime while waiting for your food. Let's make every idle moment count!
 
+## Partner With Us
+
+**Become a Part of Something Bigger**
+
+Want to make a difference while enhancing your customer experience? Partner with Jeevi!
+
+**Here's how:**
+
+1. **Download Assets:** Access our repository to download the necessary materials: high-resolution posters, QR code designs, and table stand templates. 
+2. **Design Your Space:** Customize the materials to match your establishment's aesthetic.
+3. **Strategic Placement:** Place the posters in prominent areas and distribute QR code displays to each table.
+4. **Inform Your Staff:** Brief your team about the initiative and encourage them to promote it to customers. 
+
+By partnering with us, you're not just providing a unique dining experience; you're contributing to a global cause. Let’s create a positive impact together!
+
 ## 🚀 About Me
 I'm Keyur Ahuja, an author and entrepreneur. I have written 8 books and launched 16 startups and 5 nonprofits till now. You can learn more by visiting my profile.
 
