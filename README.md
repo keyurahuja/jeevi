@@ -35,7 +35,7 @@ By partnering with us, you're not just providing a unique dining experience; you
 
 ## Please Remember
 
-**We believe in the power of mindful sharing.** Enjoy your meal and the company of your loved ones without distractions. [Project Name] is designed to fit seamlessly into your dining experience. Use those quiet moments between courses to explore and share our engaging content. 
+**We believe in the power of mindful sharing.** Enjoy your meal and the company of your loved ones without distractions. Jeevi is designed to fit seamlessly into your dining experience. Use those quiet moments between courses to explore and share our engaging content. 
 
 **Remember, your social connections are precious.** If you're engrossed in conversation, feel free to save our messages for later. There's always another opportunity to spread joy and make a difference. Let's create a balance between connecting with others and giving back to the world. 
 
