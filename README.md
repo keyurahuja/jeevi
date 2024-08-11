@@ -15,6 +15,27 @@ We believe in the power of peer-to-peer sharing. Your actions can create a rippl
 
 Remember: Share these messages during your downtime while waiting for your food. Let's make every idle moment count!
 
+## Why Share Our Messages As A Diner?
+
+Sharing Jeevi messages is more than just entertainment; it's a powerful way to make a difference. By sharing our content, you:
+
+* **Spread Positivity:** Share uplifting and informative messages with your friends and family.
+* **Expand Your Knowledge:** Discover new facts, perspectives, and stories every time you share.
+* **Support Important Causes:** Contribute to humanitarian efforts by sharing messages with embedded CTAs.
+* **Connect with Others:** Foster meaningful conversations and shared experiences through shared content. 
+* **Be Part of a Movement:** Join a community of like-minded individuals who care about making a difference.
+
+**Make Every Moment Count:**
+
+Sharing Jeevi messages is effortless and impactful. It's a small action with a big outcome. By taking a few moments to share, you can:
+
+* **Inspire Others:** Motivate your network to learn, share, and support important causes.
+* **Create Awareness:** Help spread the word about pressing global issues.
+* **Drive Positive Change:** Contribute to a better world by amplifying the reach of our messages.
+* **Enhance Your Social Feed:** Add variety and value to your social media presence.
+* **Feel Good:** Experience the satisfaction of knowing you've made a positive impact. 
+
+
 ## How To Become A Jeevi Partner (For Hotels, Restaurants and Cafes)
 
 **Become a Part of Something Bigger**
@@ -49,27 +70,6 @@ Partnering with Jeevi is not just about doing good; it’s about achieving tangi
 * **Generate Positive Publicity:** Gain media attention for your support of humanitarian causes.
 * **Enhance Customer Engagement:** Create a more dynamic and interactive dining experience for your patrons by incorporating our platform. 
 * **Strengthen Community Ties:** Position your restaurant as a community hub that cares. 
-
-## Why Share Our Messages As A Diner?
-
-Sharing Jeevi messages is more than just entertainment; it's a powerful way to make a difference. By sharing our content, you:
-
-* **Spread Positivity:** Share uplifting and informative messages with your friends and family.
-* **Expand Your Knowledge:** Discover new facts, perspectives, and stories every time you share.
-* **Support Important Causes:** Contribute to humanitarian efforts by sharing messages with embedded CTAs.
-* **Connect with Others:** Foster meaningful conversations and shared experiences through shared content. 
-* **Be Part of a Movement:** Join a community of like-minded individuals who care about making a difference.
-
-**Make Every Moment Count:**
-
-Sharing Jeevi messages is effortless and impactful. It's a small action with a big outcome. By taking a few moments to share, you can:
-
-* **Inspire Others:** Motivate your network to learn, share, and support important causes.
-* **Create Awareness:** Help spread the word about pressing global issues.
-* **Drive Positive Change:** Contribute to a better world by amplifying the reach of our messages.
-* **Enhance Your Social Feed:** Add variety and value to your social media presence.
-* **Feel Good:** Experience the satisfaction of knowing you've made a positive impact. 
-
 
 ## Please Remember
 
