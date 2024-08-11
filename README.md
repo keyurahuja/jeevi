@@ -6,6 +6,17 @@ Hidden within each message is a subtle call to action that supports vital humani
 
 We believe in the power of peer-to-peer sharing. Your actions can create a ripple effect of positive change. Let's build a world where every mealtime is an opportunity to connect, share, and support.
 
+# Getting Started
+
+Spread the Word, One Share at a Time
+
+Discover Engaging Content: Explore our repository for a variety of captivating messages. Each message contains a unique blend of information and inspiration.
+Copy and Share: Simply copy the desired message.
+Engage Your Network: Paste the message into your preferred messaging app and share it with friends, family, or colleagues.
+Inspire Action: Encourage your contacts to learn more about the cause highlighted in the message.
+
+Remember: Share these messages during your downtime while waiting for your food. Let's make every idle moment count!
+
 ## 🚀 About Me
 I'm Keyur Ahuja, an author and entrepreneur. I have written 8 books and launched 16 startups and 5 nonprofits till now. You can learn more by visiting my profile.
 
