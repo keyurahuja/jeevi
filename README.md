@@ -17,7 +17,7 @@ Remember: Share these messages during your downtime while waiting for your food.
 
 ## Why Share Our Messages As A Diner?
 
-Sharing Jeevi messages is more than just entertainment; it's a powerful way to make a difference. By sharing our content, you:
+Sharing our messages is more than just entertainment; it's a powerful way to make a difference. By sharing our content, you:
 
 * **Spread Positivity:** Share uplifting and informative messages with your friends and family.
 * **Expand Your Knowledge:** Discover new facts, perspectives, and stories every time you share.
@@ -27,7 +27,7 @@ Sharing Jeevi messages is more than just entertainment; it's a powerful way to m
 
 **Make Every Moment Count!**
 
-Sharing Jeevi messages is effortless and impactful. It's a small action with a big outcome. By taking a few moments to share, you can:
+Sharing our messages is effortless and impactful. It's a small action with a big outcome. By taking a few moments to share, you can:
 
 * **Inspire Others:** Motivate your network to learn, share, and support important causes.
 * **Create Awareness:** Help spread the word about pressing global issues.
