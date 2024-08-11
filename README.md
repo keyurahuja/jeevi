@@ -18,7 +18,7 @@ We believe in the power of peer-to-peer sharing. Your actions can create a rippl
 
 Remember: Share these messages during your downtime while waiting for your food. Let's make every idle moment count!
 
-## Partner With Us (For Hotels, Restaurants and Cafes)
+## How To Become A Jeevi Partner (For Hotels, Restaurants and Cafes)
 
 **Become a Part of Something Bigger**
 
