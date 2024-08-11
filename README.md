@@ -33,7 +33,7 @@ Want to make a difference while enhancing your customer experience? Partner with
 
 By partnering with us, you're not just providing a unique dining experience; you're contributing to a global cause. Let’s create a positive impact together!
 
-**Contact Us**
+## Contact Us
 
 For general inquiries or feedback, please contact us at **contact@jeevi.co**.
 
