@@ -8,8 +8,6 @@ We believe in the power of peer-to-peer sharing. Your actions can create a rippl
 
 # Getting Started
 
-Spread the Word, One Share at a Time
-
 **Discover Engaging Content**: Explore our repository for a variety of captivating messages. Each message contains a unique blend of information and inspiration.
 
 **Copy and Share**: Simply copy the desired message.
