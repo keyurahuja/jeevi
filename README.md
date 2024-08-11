@@ -59,8 +59,6 @@ Partnering with Jeevi can significantly enhance your establishment’s appeal an
 * **Boost Social Media Engagement:** Encourage customers to share their experience and your establishment on social media.
 * **Support a Worthy Cause:** Contribute to global humanitarian efforts through our platform.
 
-**Realize Tangible Benefits:**
-
 Partnering with Jeevi is not just about doing good; it’s about achieving tangible business benefits. By joining our network, you’ll:
 
 * **Increase Average Spend:** Engaged customers tend to stay longer and spend more.
