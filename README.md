@@ -43,8 +43,6 @@ If you have detailed feedback or suggestions for improvement, please share them 
 
 For sponsorship inquiries, please contact **sponsorships@jeevi.co**.
 
-**Founder and CEO**
-
 For direct communication with the founder and CEO, please reach out to **keyur@jeevi.co**.
 
 **Note:** Please use the appropriate email address for your specific query to ensure a timely response.
