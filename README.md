@@ -25,7 +25,7 @@ Sharing Jeevi messages is more than just entertainment; it's a powerful way to m
 * **Connect with Others:** Foster meaningful conversations and shared experiences through shared content. 
 * **Be Part of a Movement:** Join a community of like-minded individuals who care about making a difference.
 
-**Make Every Moment Count:**
+**Make Every Moment Count!**
 
 Sharing Jeevi messages is effortless and impactful. It's a small action with a big outcome. By taking a few moments to share, you can:
 
