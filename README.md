@@ -44,10 +44,10 @@ Want to make a difference while enhancing your customer experience? Partner with
 
 **Here's how:**
 
-1. **Download Assets:** Access our repository to download the necessary materials: high-resolution posters, QR code designs, and table stand templates. 
-2. **Design Your Space:** Customize the materials to match your establishment's aesthetic.
-3. **Strategic Placement:** Place the posters in prominent areas and distribute QR code displays to each table.
-4. **Inform Your Staff:** Brief your team about the initiative and encourage them to promote it to customers. 
+1. **Access Your Assets:** Download the provided poster and QR code display stand designs from our repository.
+2. **Print and Assemble:** Print the poster in high quality and assemble the QR code display stand.
+3. **Strategic Placement:** Position the poster in a prominent area within your establishment.
+4. **Tabletop Integration:** Place the QR code display stand on each table.
 
 By partnering with us, you're not just providing a unique dining experience; you're contributing to a global cause. Let’s create a positive impact together!
 
