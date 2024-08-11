@@ -6,7 +6,7 @@ Hidden within each message is a subtle call to action that supports vital humani
 
 We believe in the power of peer-to-peer sharing. Your actions can create a ripple effect of positive change. Let's build a world where every mealtime is an opportunity to connect, share, and support.
 
-# Getting Started
+## Getting Started
 
 **Discover Engaging Content**: Explore our repository for a variety of captivating messages. Each message contains a unique blend of information and inspiration.
 
