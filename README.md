@@ -109,7 +109,7 @@ For direct communication with the founder and CEO, please reach out to **keyur@j
 Thank you for your support!
 
 ## 🚀 About Me
-I'm Keyur Ahuja, an author and entrepreneur. I have written 8 books and launched 16 startups and 5 nonprofits till now. You can learn more by visiting my profile.
+I'm Keyur Ahuja, an author and entrepreneur. I love writing books and building startups. You can learn more by visiting my profile.
 
 ## 🔗 Links
 [![portfolio](https://img.shields.io/badge/my_portfolio-000?style=for-the-badge&logo=ko-fi&logoColor=white)](https://keyurahuja.com/)
